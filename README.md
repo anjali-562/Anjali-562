@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Anjali-7699
+- 👋 Hi, I’m Anjali Gupta
 
